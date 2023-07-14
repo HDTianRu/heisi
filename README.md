@@ -1,7 +1,7 @@
-###群主黑丝照！
+###黑丝照！
 
-[点此查看](https://autopatchcn.yuanshen.com/client_app/download/Android/20230625152748_Ih7bdShLfP9DkxVD/mihoyo/yuanshen_3.8.0.apk)
+[点此查看](https://ys.mihoyo.com/)
 
-###群主写真！
+###写真！
 
-[点此查看](https://autopatchcn.yuanshen.com/client_app/download/Android/20230625152748_Ih7bdShLfP9DkxVD/mihoyo/yuanshen_3.8.0.apk)
+[点此查看](https://sr.mihoyo.com/)
